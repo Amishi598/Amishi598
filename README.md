@@ -1,4 +1,4 @@
-# Hello🤍🤍 I am Amishi. 
+# Hello! <3 <3 I am Amishi. 
 ### I am currently studying in MVN sec-43. I study in 6th standard.
 
 
